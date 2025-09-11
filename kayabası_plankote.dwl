@@ -1,0 +1,3 @@
+suley
+LAPTOP-75L86LVI 
+11 Eylül 2025 Persembe  22:20:22
